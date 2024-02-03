@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shrhar
+- 👀 I’m interested in machine learning
+- 💞️ I’m looking to collaborate on some interesting projects.
+- 📫 To reach me shreeharan59@gmail.com
